@@ -1,1 +1,1 @@
-# photograhy
+# photography
